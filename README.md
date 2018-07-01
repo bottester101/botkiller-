@@ -1,3 +1,0 @@
-# botkiller-
-this   helpp
-hi 
